@@ -1,3 +1,3 @@
 # dbs-github
-learn git &amp; github
-1) create repo
+qaidnjoiqasd
+meski waktu dataang
